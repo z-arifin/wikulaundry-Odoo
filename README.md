@@ -1,0 +1,1 @@
+# wikulaundry-Odoo
